@@ -1,0 +1,6 @@
+# Образование
+- Студент бакалавриата СПбГУ по направлению «Технологии Программировния»
+
+# Контакты
+- email: asvtiltewww@proton.me
+- telegram: [aaateteQ](https://t.me/aaateteQ)
